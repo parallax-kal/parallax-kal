@@ -4,5 +4,5 @@
 
 
 - ✉️  You can contact me at [gthecoderkalisaineza@gmail.com](mailto:gthecoderkalisaineza@gmail.com)
-- 🤝  I'm open to collaborating anything.
+- 🤝  I'm open to collaborating on anything.
 
